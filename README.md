@@ -1,1 +1,1 @@
-# National-Statistical-Institute-Internship
+# National Statistical Institute-Internship
